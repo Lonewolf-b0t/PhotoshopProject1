@@ -1,2 +1,2 @@
 # PhotoshopProjects
-This is one of a few works I have done in the past with photoshop
+This is some of a few works I have done in the past with photoshop
